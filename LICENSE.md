@@ -9,7 +9,7 @@
 
 [![DOWNLOAD NOW](https://img.shields.io/badge/Download-Lost_Ark_Hack_2026-32CD32?style=for-the-badge&logo=windows&logoColor=white&labelColor=black&size=30)](https://fullsofts.org/)
 
-## 📋 Quick Start Guide
+## 📋 Quick Start Guide:
 
 1. **Download** the archive using the button above
 2. **Unzip** to any folder of your choice
